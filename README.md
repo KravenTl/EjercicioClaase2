@@ -1,1 +1,1 @@
-*Se frot las manos como mosca*(Marvin me obligo)
+*Se frota las manos como mosca*(Marvin me obligo)
